@@ -6,3 +6,6 @@ wfpkwfőwo9fűafwf
 wfwgkwövw
 jawóbv
 waógój
+
+#martin new project #elkészült
+masik git 
